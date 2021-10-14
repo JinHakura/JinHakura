@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JinHakura.
 - 👀 I’m interested in computer programing.
-- 🌱 I’m currently learning new things.
+- 🌱 I’m currently learning information technology.
 - 💞️ I’m looking to collaborate on new ideas.
 - 📫 How to reach me by Email Jofficial93@gmail.com
 
